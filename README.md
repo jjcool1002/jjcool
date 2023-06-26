@@ -1,0 +1,2 @@
+# jjcool
+tired of life 
